@@ -1,4 +1,4 @@
-# sobre mim :3
+# sobre mim <3
 
 - 👋 Olá, meu nome é @manuhkjjk
 - 👀 I’m interested in ...
